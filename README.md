@@ -28,4 +28,6 @@ Conclusion
 
 Following proper application steps helps maintain a trusted vendor community on Black Ops darknet market.
 
-Update:  18 September 2025
+
+
+Update:  01.10.2025 Link corrected
